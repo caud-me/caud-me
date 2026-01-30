@@ -1,10 +1,15 @@
+🌿
+
 **hello, whyeron here.**
 
 i love turning my ideas into reality. i learn as i do it, and i'd like to show them to the like-minded people.<br>
 the languages i am confident at is currently python, followed by java, gdscript (godot) and javascript.<br>
-i used to code in c#, vba, and lua but that's just not my priority anymore.
+i used to code in c#, vba, and lua but that's just not my priority anymore.<br>
 
-**public accounts i'm willing to share.**
+my goal for this year to simply stay away from the black box, as more and more devs seem to be latching at vibe-coding.<br>
+i want to gain ownership of my ideas, my logic, and my code.
+
+**public accounts i'm willing to share...**
 
 ig: [@whyeronn](https://www.instagram.com/whyeronn/)
 
