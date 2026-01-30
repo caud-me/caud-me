@@ -7,11 +7,12 @@ the languages i am decent at is currently java, followed by python, gdscript (go
 i used to code in c#, vba, and lua but that's just not my priority anymore.<br>
 
 my goal for this year to simply stay away from the black box, as more and more devs seem to be latching at vibe-coding.<br>
-i want to gain ownership of my ideas, my logic, and my code.
+i want to gain ownership of my ideas, my logic, and my code.<br>
+everything that i am doing is perhaps inspired by this one particular person.
 
-**public accounts i'm willing to share...**
+**public socials i'm willing to share...**
 
-ig: [@whyeronn](https://www.instagram.com/whyeronn/)
+new ig: [@whyeronn](https://www.instagram.com/whyeronn/)
 
 spotify: [@whyeron](https://open.spotify.com/user/t76rzemlvkb3ldv3x7u63qpxj?si=705c009063054217)
 
