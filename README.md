@@ -10,9 +10,9 @@ my goal for this year to simply stay away from the black box, as more and more d
 i want to gain ownership of my ideas, my logic, and my code.<br>
 everything that i am doing is perhaps inspired by this one particular person.
 
-**public socials i'm willing to share...**
+**handles**
 
-new ig: [@whyeronn](https://www.instagram.com/whyeronn/)
+ig: [@whyeronn](https://www.instagram.com/whyeronn/)
 
 spotify: [@whyeron](https://open.spotify.com/user/t76rzemlvkb3ldv3x7u63qpxj?si=705c009063054217)
 
